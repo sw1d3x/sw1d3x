@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sw1d3x
+- 👀 I’m interested in писта
+- 🌱 I’m currently learning писту
+- 💞️ I’m looking to collaborate on с пистой
+- 📫 How to reach me купить мне писту
